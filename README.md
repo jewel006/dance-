@@ -1,1 +1,1 @@
-# dance/busniess-
+# dance/business-
